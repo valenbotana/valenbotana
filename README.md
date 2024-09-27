@@ -1,3 +1,5 @@
+![Valentina Botana (1)](https://github.com/user-attachments/assets/23863aab-7a5f-4825-9e08-dd41902e9e47)
+
 <h1 align="center">Hi 👋, I'm Valentina Botana</h1>
 <h3 align="center">A passionate IT Career advisor</h3>
 
