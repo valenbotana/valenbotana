@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vbotana@4geeksacademy.com**
 
-- ⚡ Fun fact **I studied in a school were most people played music, I know how to play piano and sing**
+- ⚡ Fun fact **I studied in a school were most people played a musical instrument, I know how to play the piano and sing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
